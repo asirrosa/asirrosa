@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @asirrosa
-- 🌱 I’m currently learning Rust
 - 📫 How to reach me asierosa@proton.me
