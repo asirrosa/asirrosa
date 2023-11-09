@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @asirrosa
-- 📫 How to reach me asirosa@proton.me
+- 📫 How to reach me asirrosa23@gmail.com
